@@ -2,7 +2,10 @@
 published: false
 ---
 
+![3 desire photo.jpeg]({{site.baseurl}}/_posts/3 desire photo.jpeg)
+
 **## Quick Guide: 3 Tips on Desire**
+
 I just finished listening to the book “Think and Grow Rich” by Napoleon Hill. So, after listening to Julien Blanc’s video about desire leading to unhappiness, I realized there’s a divide here.
 (A link to the Julien Blanc, and Think and Grow Rich video at the end)
 Napoleon Hill says, what you desire needs to be on your brain constantly. Julien Blanc says, having desire means to have a lack of said thing you desire. This scarcity equates to unhappiness.
