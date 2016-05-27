@@ -25,5 +25,5 @@ This might remind you of a teacher or your parents, but it really is good advice
 
 [Here](https://youtu.be/TLspLT96fEM) is the link to Julien’s video.
 
-[Here](https://youtu.be/Jwmxp2UNyVY)is an animated summary of Think and Grow Rich by 
+[Here](https://youtu.be/Jwmxp2UNyVY) is an animated summary of Think and Grow Rich by 
 
