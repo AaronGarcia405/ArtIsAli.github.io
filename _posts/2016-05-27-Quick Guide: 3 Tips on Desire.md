@@ -21,9 +21,7 @@ The entrepreneur, and education guru Tai Lopez talks of having a wide knowledge 
 This might remind you of a teacher or your parents, but it really is good advice. There is the idea that if you tell people about it, then you have a commitment to do it. Otherwise you’re risking reputation and trust. But, how often do people really do that. How many people really care? If you’re a big name company who doesn’t keep their word then maybe. You must keep your desires to yourself. When you tell people your desires, a part of your ego is satisfied, even if you never fulfill said desire. Which creates this weird paradox of feeling satisfied but have nothing to show for it. In extreme cases your ego might become inflated, so that when you achieve real success you wont be able to enjoy it.
 
 
-If you appreciate these tips then please share, comment and like.
+[Here](https://youtu.be/TLspLT96fEM) is the link to Julien’s video.
 
-Here is the link to Julien’s video.
-
-Check out an animated summary of Think and Grow Rich here.
+[Here](https://youtu.be/Jwmxp2UNyVY)is an animated summary of Think and Grow Rich by 
 
