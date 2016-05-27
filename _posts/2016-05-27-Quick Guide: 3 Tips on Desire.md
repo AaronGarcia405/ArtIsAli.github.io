@@ -4,7 +4,7 @@ published: false
 
 ![3 desire photo.jpeg]({{site.baseurl}}/_posts/3 desire photo.jpeg)
 
-**## Quick Guide: 3 Tips on Desire**
+** Quick Guide: 3 Tips on Desire**
 
 I just finished listening to the book “Think and Grow Rich” by Napoleon Hill. So, after listening to Julien Blanc’s video about desire leading to unhappiness, I realized there’s a divide here.
 (A link to the Julien Blanc, and Think and Grow Rich video at the end)
@@ -19,7 +19,11 @@ The entrepreneur, and education guru Tai Lopez talks of having a wide knowledge 
 
 ### 3. Keep It To Yourself!
 This might remind you of a teacher or your parents, but it really is good advice. There is the idea that if you tell people about it, then you have a commitment to do it. Otherwise you’re risking reputation and trust. But, how often do people really do that. How many people really care? If you’re a big name company who doesn’t keep their word then maybe. You must keep your desires to yourself. When you tell people your desires, a part of your ego is satisfied, even if you never fulfill said desire. Which creates this weird paradox of feeling satisfied but have nothing to show for it. In extreme cases your ego might become inflated, so that when you achieve real success you wont be able to enjoy it.
+
+
 If you appreciate these tips then please share, comment and like.
+
 Here is the link to Julien’s video.
+
 Check out an animated summary of Think and Grow Rich here.
 
