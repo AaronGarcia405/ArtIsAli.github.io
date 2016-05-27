@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Welcome to Jekyll!"
+title:  "Great! Welcome to the NEW, INSIGHTFUL, Garcialy.com"
 date:   2016-05-24 11:52:35 -0400
 categories: jekyll update
 ---
