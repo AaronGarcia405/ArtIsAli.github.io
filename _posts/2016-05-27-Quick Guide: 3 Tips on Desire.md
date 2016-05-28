@@ -7,7 +7,6 @@ published: true
 
 ![3 desire photo.jpeg]({{site.baseurl}}/_posts/3 desire photo.jpeg)
 
-** Quick Guide: 3 Tips on Desire**
 
 I just finished listening to the book “Think and Grow Rich” by Napoleon Hill. So, after listening to Julien Blanc’s video about desire leading to unhappiness, I realized there’s a divide here.
 
