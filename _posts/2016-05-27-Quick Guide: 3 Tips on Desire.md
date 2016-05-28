@@ -1,4 +1,7 @@
 ---
+layout: post
+title:  "Quick Guide: 3 Tips on Desire"
+date:   2016-05-24 11:52:35 -0400
 published: true
 ---
 
